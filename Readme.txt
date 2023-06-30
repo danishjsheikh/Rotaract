@@ -1,5 +1,6 @@
 Rotaract Club Of SPIT
 This Website Was Developed By Danish Sheikh 
+Hosted Link: https://rotaractspit.000webhostapp.com/
 Phone No: +91 8070871339
 LinkedIn: https://www.linkedin.com/in/danish-j-sheikh/
 Instagram: https://www.instagram.com/danishxsheikh/ 
